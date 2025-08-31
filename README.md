@@ -21,10 +21,10 @@ This project highlights my skills in **UI/UX design, branding, product concepts,
 * 🏎️ McLaren GTS – [Watch here](https://youtube.com/shorts/oCuADHMhOdQ?si=6nPC4Cga6Qc-NymC)
 * 👟 Nike Concept – [Watch here](https://youtube.com/shorts/OvbtzXngEnM?si=Cz0XrHK2ffOnv7_0)
 * 🏍️ Kawasaki Ninja – [Watch here](https://youtube.com/shorts/EAIuZACW7wc?si=q52JAZYxMAnmuYSy)
-* 🍟 Pringles Red – [Watch here](https://youtube.com/shorts/PX0H6W3OYbA?si=7f4BYk5RKFe8NNcR)
-* ⚡ Red Bull Sugar Free – [Watch here](https://youtube.com/shorts/4OQj6wJzJwE?si=Jztfu0JA1aYBVI8R)
+* 🍟 Pringles – [Watch here](https://youtube.com/shorts/PX0H6W3OYbA?si=7f4BYk5RKFe8NNcR)
+* ⚡ Red Bull – [Watch here](https://youtube.com/shorts/4OQj6wJzJwE?si=Jztfu0JA1aYBVI8R)
 * 🍓 Smoothies Concept – [Watch here](https://youtube.com/shorts/Hvj4lSarAFE?si=fs9fQjR5zSx3T9SP)
-* 🥤 Dr Pepper Strawberry – [Watch here](https://youtube.com/shorts/vVz1r5WF_Vo?si=o5xa26Hn1yUfVZ_n)
+* 🥤 Dr Pepper – [Watch here](https://youtube.com/shorts/vVz1r5WF_Vo?si=o5xa26Hn1yUfVZ_n)
 * 🎉 Compilation (All 10 Sliders) – [Watch here](https://youtube.com/shorts/3V0iT2vpE10?si=AbiNod8zq2eVB-xR)
 
 ---
